@@ -16,7 +16,7 @@
 - 👯 I’m looking forward to collaborate with other Developers
 - 🥅 2022 Goals: Become more fluent in my languages :eyes:
 - 🎿 Hobbies other than coding : Gaming , gym 🤔🤖.. 
-- 📬 How to reach me: Badekarret#3206
+- 📬 How to reach me: .badekarret
 
 <br>
 
